@@ -1,3 +1,3 @@
-# Tugas Akhir Algoritma 2 - Semester 2
+# Tugas Akhir Algoritma - Semester 2
 
 😂
